@@ -2,7 +2,7 @@
 Perkenalkan nama saya **Jilan Ablah Hanifah** 🌻🌻  
 Saya seorang **Mobile Development Cohort** di Bangkit Academy 2024<br>
 
-Selain itu, saya memiliki pengalaman sebagai **UI/UX dan Product Designer** lhoo 😁  
+Selain itu, saya memiliki pengalaman sebagai **UI/UX dan Product Designer**
 Jika kamu tertarik untuk berkenalan denganku, let's connect Linkedin di sini -> [Linkedin](https://www.linkedin.com/in/jilan-ablah/).
 
 ### Github Statistic
